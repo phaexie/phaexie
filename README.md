@@ -8,3 +8,7 @@
  (*ゝω・)ﾉ
 
 m/w   my   gc
+
+![](https://files.catbox.moe/rwz9p8.png)
+
+ts is so out of context if you werent in the vc 🙏

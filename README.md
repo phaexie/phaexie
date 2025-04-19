@@ -11,5 +11,3 @@
 ![](https://64.media.tumblr.com/fdfa008883aa80ee0379357d1e846e9b/1ea4bcd2d9b7386d-87/s1280x1920/ee0cc3dfce523bbac7bcd045b6b88ab09fcf0281.gifv)
 
 i have a job so less active on ponytown, follow me on tumblr, @phaexie
-
-https://rentry.co/beawareofparody

@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/qyncn3.webp)
 
-layout made by @jeanryt on tumblr (my mutual whahahahrhrbh'rb')
+layout made by @jeanryt (deactivated)
 
 HEAVY PHAINON KIN/ID
 

@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/cf7591cab880c3e28513b1d06c5b2fe3/a3b8cd28809a7403-3d/s1280x1920/bd0240029f113ca89721507209302fe0f2951a3b.gifv)
 
-layout made by @phaexie (me)
+layout made by [@phaexie](https://www.tumblr.com/phaexie/787724143817850881/𝐌𝐘-𝐒𝐀𝐕𝐈𝐎𝐔𝐑) (me)
 
 HEAVY PHAINON KIN/ID
 

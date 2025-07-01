@@ -4,7 +4,7 @@
 
 layout made by [@phaexie](https://www.tumblr.com/phaexie/787724143817850881/𝐌𝐘-𝐒𝐀𝐕𝐈𝐎𝐔𝐑) (me)
 
-HEAVY PHAINON KIN/ID
+matching with the [scary guy](https://github.com/VINYLSPLENDOR)...
 
 [RENTRY](https://rentry.co/phaexie) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/phaexie) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)
 

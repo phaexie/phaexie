@@ -1,10 +1,8 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/cf7591cab880c3e28513b1d06c5b2fe3/a3b8cd28809a7403-3d/s1280x1920/bd0240029f113ca89721507209302fe0f2951a3b.gifv)
+![](https://64.media.tumblr.com/05d400175b23d7ece583901d263882c9/1372f49e3e9310dd-93/s2048x3072/43c605463df46c8b4ff234d2b97311845c98d035.gifv)
 
-layout made by [@phaexie](https://www.tumblr.com/phaexie/787724143817850881/𝐌𝐘-𝐒𝐀𝐕𝐈𝐎𝐔𝐑) (me)
-
-matching with the [scary guy](https://github.com/VINYLSPLENDOR)...
+layout made by [@phaexie](https://www.tumblr.com/phaexie/788812538628489216/八尋寧々) (me)
 
 [RENTRY](https://rentry.co/phaexie) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/phaexie) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)
 
@@ -14,4 +12,4 @@ matching with the [scary guy](https://github.com/VINYLSPLENDOR)...
 
 i have a job so less active on ponytown, follow me on tumblr, @phaexie
 
-![](https://files.catbox.moe/j5osoq.png)
+![](https://64.media.tumblr.com/5d934b6f13de49f0fcda3ccfdc005a29/1372f49e3e9310dd-ff/s2048x3072/b0fa71677261de3c53f4024922154f0a871819a0.pnj)

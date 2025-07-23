@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/kfro3z.gifv)
+![](https://64.media.tumblr.com/a13068dae1d40bc49d88452257d34737/ee459958c45d5523-4d/s2048x3072/e77648cce7d2e43bf90c8030ffc15d0f93df5551.pnj)
 
 layout made by [@phaexie](https://www.tumblr.com/phaexie/788812538628489216/八尋寧々) (me)
 
@@ -11,5 +11,3 @@ layout made by [@phaexie](https://www.tumblr.com/phaexie/788812538628489216/八�
 
 
 i have a job so less active on ponytown, follow me on tumblr, @phaexie
-
-![](https://64.media.tumblr.com/5d934b6f13de49f0fcda3ccfdc005a29/1372f49e3e9310dd-ff/s2048x3072/b0fa71677261de3c53f4024922154f0a871819a0.pnj)

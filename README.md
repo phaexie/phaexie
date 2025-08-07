@@ -1,5 +1,7 @@
 <div align="center">
 
+PEOPLE I BEG YOU PROVIDE PLAIN TEXT!!! I CANT UNDERSTAND GREEK LETTERS AND SHIT MY GOD.
+
 ![](https://64.media.tumblr.com/4950b95276848862c505d95a1049a2e6/3f8554c17536521f-e7/s2048x3072/066190f6ab68b86e591c3b62499fca192ae093f0.pnj)
 
 [RENTRY](https://rentry.co/phaexie) ৴ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴ [STRAWPAGE](https://argentilover.straw.page) ৴ [TUMBLR](https://www.tumblr.com/phaexie) ৴ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES)

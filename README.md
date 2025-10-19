@@ -5,7 +5,7 @@
 
 I use screenreaders so please provide plain text :)
 
-![](https://64.media.tumblr.com/3303ba7e01cfdbedf9de014a9773b89a/112647211e0f2aa7-82/s2048x3072/0bdf54d1bc8cf3a84fbe07ae538fa8e656c817f4.pnj)
+![](https://64.media.tumblr.com/28f97c7088780bc55df6af016613d4f3/b4ca51333bb641cb-02/s500x750/65ea24aa996b3b5eeba250c15986dc0494c05fbb.gifv)
 
 ♫ [RENTRY](https://rentry.co/phaexie) ৴
 

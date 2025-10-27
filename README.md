@@ -4,7 +4,8 @@
 ﹙ㅤεїзㅤ﹚ㅤ﹔ㅤᎮᏂαιɳσɳㅤ︐ㅤ[ρυρρყd̲e̲l̲u̲s̲i̲c̲](https://www.tumblr.com/pupyzu/652436072276672512/puppy-delusic-puppy-eomic?source=share)  &&  [ƚ-Ⴆσყ](https://www.tumblr.com/rabidbatboy/749121881962053632/tboy-flag-a-flag-for-transboystboys-in?source=share)
 
  𑇗ㅤㅤㅤ ⃝🍵ܶㅤㅤ	暁天に響く鈴ㅤ ⁚ㅤ 1̲7̲yoㅤㅤ✧
- [rentry]() [tumblr]()
+ 
+ਏਓㅤㅤ◌ㅤ	ファイノン ㅤ[tumblr](https://www.tumblr.com/phaexie)ㅤ ׄㅤ︔ㅤ[rentry](https://rentry.co/puppyprincey) 
 
  ![](https://64.media.tumblr.com/434da1dbb244d36841f4367b7386349c/4f567b7bd2a2aa7f-08/s100x200/8e731719e2b093fb00cb04cdeae1972df1cf59a4.pnj)
  ![](https://64.media.tumblr.com/80d7f1e51ef0f207b3426ee8336c1ce6/4f567b7bd2a2aa7f-65/s100x200/730f4bd6439884fc18561583280f7a48e7cbd454.pnj) 

@@ -1,21 +1,3 @@
 <div align="center">
 
-(*ゝω・)ﾉ
-
-
-recent [post](https://www.tumblr.com/phaexie/798501966856798208/sigewinne-layout-%F0%96%A5%94-%E3%82%B7%E3%82%B0%E3%82%A6%E3%82%A3%E3%83%B3-rb2u-credit?source=share) 
-
-![](https://64.media.tumblr.com/28f97c7088780bc55df6af016613d4f3/b4ca51333bb641cb-02/s500x750/65ea24aa996b3b5eeba250c15986dc0494c05fbb.gifv)
-
-♫ [RENTRY](https://rentry.co/phaexie) ৴
-
-♫ [FAMILY TREE](https://rentry.co/HoHfamilytree) ৴
-
-♫ [STRAWPAGE](https://argentilover.straw.page) ৴
-
-♫ [TUMBLR](https://www.tumblr.com/phaexie) ৴
-
-♫ [RENTRY 2.0](https://rentry.co/DEVIOUS-COOKIES) ৴
-
-
-![](https://64.media.tumblr.com/94684f2ddddcc03abbb306ad2370d707/112647211e0f2aa7-49/s1280x1920/f33a33a20f0619379246146c7101c170656a2f09.pnj)
+![nf2U](https://64.media.tumblr.com/1bb4a066514aa00ddd2bcf658d821da6/36efec6537ea1d99-34/s2048x3072/8f0a0382cf56236af910d75eb3e94dc214d8abeb.gifv)

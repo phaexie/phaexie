@@ -1,6 +1,7 @@
 <div align="center">
 
-![nf2U](https://64.media.tumblr.com/1bb4a066514aa00ddd2bcf658d821da6/36efec6537ea1d99-34/s2048x3072/8f0a0382cf56236af910d75eb3e94dc214d8abeb.gifv)
+![](https://files.catbox.moe/bhoc6i.webp)
+
 ﹙ㅤεїзㅤ﹚ㅤ﹔ㅤᎮᏂαιɳσɳㅤ︐ㅤ[ρυρρყd̲e̲l̲u̲s̲i̲c̲](https://www.tumblr.com/pupyzu/652436072276672512/puppy-delusic-puppy-eomic?source=share)  &&  [ƚ-Ⴆσყ](https://www.tumblr.com/rabidbatboy/749121881962053632/tboy-flag-a-flag-for-transboystboys-in?source=share)
 
  𑇗ㅤㅤㅤ ⃝🍵ܶㅤㅤ	暁天に響く鈴ㅤ ⁚ㅤ 1̲7̲yoㅤㅤ✧
